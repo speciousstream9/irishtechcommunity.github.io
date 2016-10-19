@@ -1,5 +1,15 @@
 ## Master List of all posts, request and admin has taken 
 
+19th of October 2016 by specious (Admin)
+
+*TOS Breach* - Removal of content by @MartinZoo in #jobs
+
+[Didn't remember to copy it]
+
+> [WE DON'T DEAL WITH RECUITERS THANKS] <- example of the content
+
+Was at the start of the jobs post which was a breach on...basically everything (Anti-social, discrimination, doesn't fit the format outlined etc). So it was removed. OP was contacted with time allowed to edit their post to something more appropriate, did not get a response from the OP and it was removed. 
+
 16th October 2016 by specious (admin)
 
 *SPAM* - Removal of the following uploaded file text by @connect_the_dots:  
